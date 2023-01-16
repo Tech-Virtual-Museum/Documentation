@@ -1,1 +1,2 @@
-
+* <a href="https://alumnosulpgc-my.sharepoint.com/:p:/g/personal/nahima_ortega101_alu_ulpgc_es/EbdPvmy3wcVIjg0R9VZyLtsBHHe7NQVwd84CoGBV3L_-hg?e=ptutGt"> Enlace a la presentación en PowerPoint con los puntos principales sobre las aplicaciones </a>
+* <a href="https://alumnosulpgc-my.sharepoint.com/:p:/g/personal/nahima_ortega101_alu_ulpgc_es/EbdPvmy3wcVIjg0R9VZyLtsBHHe7NQVwd84CoGBV3L_-hg?e=ptutGt"> Link to the PowerPoint presentation with the key points about the applications </a>
